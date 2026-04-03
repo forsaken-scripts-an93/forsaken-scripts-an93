@@ -1,4 +1,4 @@
-
+Free prem Scripts for restaurant tycoon 3 - inf-money and auto-cook brings you the best free scripts for restaurant tycoon 3, featuring inf-money and auto-cook. Our mission is to empower players with the resources they need to excel. Say goodbye to paywalls and hello to unlimited possibilities.
 
 
 ---
